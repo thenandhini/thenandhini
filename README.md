@@ -4,7 +4,7 @@ NANDHINI R
   Bachelor of Technology  
 Dr B R Ambedkar National Institute of Technology, Jalandhar  
 -Majors :  
-Industrial & Production Engineering  ( Oct-2021 – Present 7.57/10 CGPA)  
+Industrial & Production Engineering  ( Oct-2021 – Present 7.59/10 CGPA)  
 -Minors :  
 Computer Science Engineering   ( Oct-2021 – Present 8.00/10 CGPA  )  
 -Class XII  
